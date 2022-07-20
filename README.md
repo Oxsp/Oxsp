@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Oxsp
+- 👀 I’m interested in learning to program
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on not sure yet...
+- 📫 How to reach me Twitter
